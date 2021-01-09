@@ -1,0 +1,2 @@
+# qamish
+Qamish Xorazm Taomlari
